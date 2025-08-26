@@ -1,1 +1,1 @@
-## hallo Kita orang aring yang suka IT
+## Hallo kita orang aring yang suka IT
